@@ -8,4 +8,5 @@
 6. [FB POST](https://web.facebook.com/844290525628089/posts/1172071706183301/?_rdc=1&_rdr)
 7. [ব্রয়লাল মুরগী পালন ও পরিচর্যা](http://bahadurpurup.madaripur.gov.bd/site/page/8337ecbe-2013-11e7-8f57-286ed488c766/%E0%A6%AC%E0%A7%8D%E0%A6%B0%E0%A7%9F%E0%A6%B2%E0%A6%BE%E0%A6%B2%20%E0%A6%AE%E0%A7%81%E0%A6%B0%E0%A6%97%E0%A7%80%20%E0%A6%AA%E0%A6%BE%E0%A6%B2%E0%A6%A8%20%E0%A6%93%20%E0%A6%AA%E0%A6%B0%E0%A6%BF%E0%A6%9A%E0%A6%B0%E0%A7%8D%E0%A6%AF%E0%A6%BE%E0%A5%A4)
 8. [সোনালী জাতের মুরগী পালন](https://iubat.edu/iaas/sonali.html)
-9. 
+9. [Agriculture Information System](http://www.ais.gov.bd/site/view/krishi_kotha_details/%E0%A7%A7%E0%A7%AA%E0%A7%A8%E0%A7%A9/%E0%A6%AA%E0%A7%8C%E0%A6%B7/%E0%A6%A1%E0%A6%BF%E0%A6%AE%20%E0%A6%A6%E0%A7%87%E0%A7%9F%E0%A6%BE%20%E0%A6%AE%E0%A7%81%E0%A6%B0%E0%A6%97%E0%A6%BF%20%E0%A6%9A%E0%A7%87%E0%A6%A8%E0%A6%BE%20%E0%A6%93%20%E0%A6%B2%E0%A6%BF%E0%A6%9F%E0%A6%BE%E0%A6%B0%20%E0%A6%AA%E0%A6%A6%E0%A7%8D%E0%A6%A7%E0%A6%A4%E0%A6%BF%E0%A6%A4%E0%A7%87%20%E0%A6%AA%E0%A6%BE%E0%A6%B2%E0%A6%A8)
+10. [দেশি মুরগি পালন কৌশল ও খামার ব্যবস্থাপনা](https://akkbd.com/%E0%A6%A6%E0%A7%87%E0%A6%B6%E0%A6%BF-%E0%A6%AE%E0%A7%81%E0%A6%B0%E0%A6%97%E0%A6%BF-%E0%A6%AA%E0%A6%BE%E0%A6%B2%E0%A6%A8-%E0%A6%95%E0%A7%8C%E0%A6%B6%E0%A6%B2-%E0%A6%93-%E0%A6%96%E0%A6%BE%E0%A6%AE/)
